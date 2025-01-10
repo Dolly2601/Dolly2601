@@ -1,4 +1,4 @@
-## Hey there! I'm Dolly Rajput, a dedicated student of progrmming👋
+## Hey there! I'm Dolly Rajput, a dedicated student of programming👋
 ![image](https://github.com/user-attachments/assets/a0d566db-664e-4f72-8d7a-9fc32a9b70a5)
 
 <!--
